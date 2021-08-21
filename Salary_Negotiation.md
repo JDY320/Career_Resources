@@ -12,8 +12,12 @@ Consult online tools using the following three points:
 
 Eval and prep for salary negotiations
 
+
+
         
 ## Develop a Negotiation Strategy
+[Link here for PDF](https://drive.google.com/file/d/1GcCrnWCsGQIduDmtDRQfhKn2vrZbakkW/view) here for PDF
+
 1. List clarifying questions.
 2. Identify priority elements to negotiate based on your career values.
 3. Know your business case.
